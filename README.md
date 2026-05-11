@@ -17,4 +17,4 @@ El cambio climático se desencadena principalmente por el aumento de gases de ef
 como frenarlo?:
 Frenar el cambio climático requiere cambios grandes en energía, transporte, industria y consumo. No hay una sola solución, sino muchas acciones combinadas.
 
-sera una pagina web, sera informaciones de tornados ej:reno 2013.
+sera una pagina web, sera informaciones de tornados ej:reno 2013.presentare la escala fujita, tornados EF5, etc.sera imaginativo y probablemente le ponga un consejo o algo asi para poder sobrevivir.
